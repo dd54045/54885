@@ -20,4 +20,4 @@
 
 每次访问，我们都会为你推荐最新的日本AV免费资源，并且每天更新新片，确保你不会错过任何精彩内容。无需注册、无需下载，完全免费，一键播放，让你随时随地尽情享受高质量的观影体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd54045/54885 ）</span>
